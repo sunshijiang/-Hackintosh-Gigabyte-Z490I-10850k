@@ -1,0 +1,1 @@
+# -Hackintosh-Gigabyte-Z490I-10850k
